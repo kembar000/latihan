@@ -1,0 +1,2 @@
+# latihan
+Iseng iseng
